@@ -15,3 +15,8 @@ In search of finding Enlightenment, he decides to leave his home.
 * yet he gets rich
 * learns to love
 * eventually finds Enlightenment
+
+## words of wisdom:
+
+> Seeking means: having a goal.
+> But finding means: being free, being open, having no goal.
