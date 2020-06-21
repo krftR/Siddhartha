@@ -20,3 +20,6 @@ In search of finding Enlightenment, he decides to leave his home.
 
 > Seeking means: having a goal.
 > But finding means: being free, being open, having no goal.
+
+
+<img src="http://sognandoleggendo.net/wp-content/uploads/selfdevelopment130406.jpg"/>
